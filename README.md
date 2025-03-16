@@ -1,4 +1,4 @@
-## Hi there 👋🏼 - AP Computer Science student with a BA in English and Contemporary Communication :four_leaf_clover:
+## Hi there 👋🏼 - AP Computer Science student :four_leaf_clover:
 
 ###
 
